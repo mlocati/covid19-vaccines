@@ -106,7 +106,7 @@ E fino a metà giugno i [decessi che sono stati probabilmente causati dal vaccin
 
 ## Numero di decessi per covid
 
-Nei siti dei complottisti si legge spesso che il numero di morti per covid sia largamente sovrastimato, sostenendo che vengono conteggiati come decessi per covid anche i decessi di persone morte a causa di altre patologie e che incidentalmente erano positive al corinavirus.
+Nei siti dei complottisti si legge spesso che il numero di morti per covid sia largamente sovrastimato, sostenendo che vengono conteggiati come decessi per covid anche i decessi di persone morte a causa di altre patologie e che incidentalmente erano positive al coronavirus.
 
 I dati indicano invece che il numero di decessi ufficiali per covid è molto maggiore di quello ufficiale.
 
